@@ -1,1 +1,2 @@
-Music Compo
+Music Composition
+
