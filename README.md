@@ -4,7 +4,7 @@ Music Composition
 Song Writing: Original or adapted?
 
 
-Lyrics: Which teachers based on?
+Lyrics: Dased on which teachers?
 
 
 Melody and Harmony: Required parts/ instruments?
