@@ -5,7 +5,7 @@ For Teachers' Day, to thank teachers and provide entertainment based on memorabl
 Song Writing: Original or adapted?
 
 
-Lyrics: Dased on which teachers?
+Lyrics: Based on which teachers?
 
 
 Melody and Harmony: Required parts/ instruments?
